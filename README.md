@@ -1,0 +1,2 @@
+# A-Study-on-Employer-Employee-Relationship-and-Its-Impact-on-Employee-Performance
+This study examines the impact of employer-employee relationships on employee performance. It explores key factors such as communication, trust, motivation, job satisfaction, management support, and workplace culture. The study identifies ways to improve employee engagement, productivity, satisfaction, and overall organizational effectiveness.
